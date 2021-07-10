@@ -1,0 +1,2 @@
+# WEGRO
+WEGRO Coin (OFFICIAL)
